@@ -11,7 +11,7 @@
 
 
 
-Regular Price**: $99 per bottle
+**Regular Price**: $99 per bottle
 
 **Today's Price**: $39 per bottle**
 
