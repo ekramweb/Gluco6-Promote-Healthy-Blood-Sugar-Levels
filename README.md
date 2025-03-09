@@ -101,21 +101,27 @@ This is a specially formulated supplement designed to help manage blood sugar le
 This formula features **100% natural** and unique ingredients that are clinically proven to support healthy blood sugar levels.
 
 **Chromium:**
+
 Chromium is a trace element that plays an essential role in the metabolism of carbohydrates and lipids. It enhances insulin’s effectiveness, making it easier for glucose to enter cells and be utilized for energy. By improving insulin sensitivity, chromium helps maintain stable blood sugar levels and reduces insulin resistance, which is often seen in individuals with type-2 diabetes. Additionally, chromium aids in weight management by curbing hunger cravings and increasing feelings of fullness.
 
 **Cinnamon:**
+
 Cinnamon is a potent spice renowned for its ability to support healthy insulin and blood glucose levels. It contains bioactive compounds that mimic insulin, which enhances glucose uptake by cells and improves insulin sensitivity.
 
 **Green Tea:**
+
 Green Tea is well-known for its “anti-aging” benefits and its ability to promote healthy blood glucose metabolism.
 
 **Sukre:**
+
 Sukre is a specialized sugar that plays a crucial role in regulating blood glucose levels.
 
 **TeaCrine:**
+
 Derived from Chinese tea leaves, TeaCrine is well-known for its ability to support healthy blood sugar levels.
 
 **Gymnema:**
+
 Gymnema is a trace mineral that is essential for maintaining healthy GLUT-4 receptors. This herb effectively reduces sugar absorption in the intestines and enhances insulin function.
 
 ## 60-Day Money Back Guarantee
@@ -142,7 +148,7 @@ Your order is protected by our iron-clad **100% money-back guarantee.** If you a
 
 - **Improves Insulin Sensitivity**: Enhances your body’s ability to respond to insulin.
 - **Supports Healthy Glucose Metabolism**: Helps the body metabolize glucose more efficiently.
-- **Promotes Weight Management**: Supports healthy weight loss efforts.
+- **Promotes Weight Management**: [Supports healthy weight loss efforts.](https://lean.leanebiome.com/)
 - **Boosts Energy Levels**: Encourages natural energy production.
 - **Reduces Inflammation**: Decreases inflammation affecting insulin function.
 - **Enhances Cognitive Function**: Supports mental clarity and focus.
